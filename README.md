@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-SOBC930311HGRLTN00
+SOBC930311HGRLTN00
